@@ -1,4 +1,6 @@
-## Hi guys 
+## Fahwa Rapper ( @fahwaofficial )
+Rapfarsi 
+
 I'm an Iranian rapper 
 YouTube Channel : 
 https://youtube.com/@fahwaofficial?si=gMthC9TAcRZmFiEs
@@ -28,6 +30,18 @@ About.me :
 Https://About.me/fahwa
 
 all platforms @fahwaofficial
+**Fahwa** is an independent Iranian rapper, songwriter, and recording artist who has been professionally active since 2020. Blending dark trap, modern hip-hop, gangsta rap, and socially conscious lyricism with emotionally driven storytelling, he has built a distinctive artistic identity rooted in originality, authenticity, and artistic freedom.
+
+Rather than following trends, Fahwa has focused on developing his own flow, lyrical style, and sonic signature. His music is recognized for cinematic production, haunting melodies, hard-hitting 808s, atmospheric soundscapes, and emotionally charged performances that create an immersive listening experience.
+
+Inspired by real-life experiences, Fahwa explores themes of ambition, struggle, resistance, loyalty, inner conflict, personal growth, and social realities. His lyrics are crafted to tell honest stories, challenge limitations, and connect with listeners through authenticity rather than imitation.
+
+Since launching his professional career in 2020, Fahwa has remained fully independent, steadily expanding his catalog across major streaming platforms while shaping a clear artistic vision through both music and visual storytelling. His releases—including **"Forsat Mahdod," "HamAknon,"** and **"Azad"**—reflect the evolution of his signature sound and his commitment to continuous artistic growth.
+
+For Fahwa, music is more than entertainment—it is a voice for ambition, resilience, protest, and self-expression. Every release represents another chapter in a long-term journey to create a timeless body of work that resonates across cultures, languages, and generations.
+
+**New music available on all major streaming platforms.**
+
 
 <!--Please follow me and support me if you are interested in art and music. 
 
